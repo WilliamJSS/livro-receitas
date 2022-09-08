@@ -8,7 +8,7 @@
 - 2 xícaras de chá de farinha de trigo
 - 1 xícara de chá de achocolatado em pó
 - 1 xícara de chá de açúcar
-- 1 colheres de sopa de fermento químico em pó
+- 1 colher de sopa de fermento químico em pó
 
 #### Ingredientes - Cobertura
 
