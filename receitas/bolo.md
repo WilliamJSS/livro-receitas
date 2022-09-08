@@ -3,7 +3,7 @@
 #### Ingredientes - Massa
 
 - 1 xícara de chá de leite.
-- 1 xícara de chá de óleo de soja
+- 1 xícara de chá de óleo de soja.
 - 2 unidades de ovo
 - 2 xícaras de chá de farinha de trigo
 - 1 xícara de chá de achocolatado em pó
